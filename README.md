@@ -37,14 +37,14 @@
 
 ----------------------------------------------------------------------------------
 
-![image](https://github.com/Mod4Real/Mod4Real.github.io/assets/134821089/fb14fc7b-e57b-4431-b471-cbc5f18cd6fb)
+![image](https://github.com/Mod4Real1/Mod4Real1.github.io/assets/138044753/5f836e73-26ea-4f62-85cf-cb76a12c3329)
 
 
-| [𝙈𝙔 𝙎𝘾𝙍𝙄𝙋𝙏𝙎](https://mod4real1.github.io/) | [𝙊𝙏𝙃𝙀𝙍 𝙎𝘾𝙍𝙄𝙋𝙏𝙎](https://mod4real1.github.io/) | [𝙈𝙊𝙍𝙀 𝙄𝙉𝙁𝙊](https://mod4real1.github.io/) | 
+| [𝘽𝘼𝘾𝙆 𝙋𝘼𝙂𝙀](https://mod4real1.github.io/) | [𝘾𝙊𝙉𝙏𝘼𝘾𝙏 𝙄𝙉𝙁𝙊](https://mod4real1.github.io/) | [𝙈𝙊𝙍𝙀 𝙄𝙉𝙁𝙊](https://mod4real1.github.io/) | 
 
 ----------------------------------------------------------------------------------
 
-+ 𝑷𝒂𝒔𝒕𝒆𝒃𝒊𝒏: [Click Here](https://pastebin.com/u/Mod4Real). - ![image](https://github.com/Mod4Real/Mod4Real.github.io/assets/134821089/171ed738-2e94-478e-8c19-ae003b0a2f09)
++ 𝑨𝒑𝒆𝒙 𝒍𝒆𝒈𝒆𝒏𝒅𝒔: (YxT) Youtube x Twitch - ![image](https://github.com/Mod4Real1/Mod4Real1.github.io/assets/138044753/6e05fdb0-9d74-439e-a3f6-71e59ca7875e)
 
    
-+ 𝑮𝒊𝒕𝒉𝒖𝒃: [Click Here](https://github.com/Mod4Real). - ![image](https://github.com/Mod4Real/Mod4Real.github.io/assets/134821089/30d1708a-f2b3-495d-9639-45d144ca7380)
++ 𝑪𝒍𝒂𝒔𝒉 𝒐𝒇 𝒄𝒍𝒂𝒏𝒔: Vern's pizza - ![image](https://github.com/Mod4Real1/Mod4Real1.github.io/assets/138044753/2bf2c898-2419-45f1-baed-c42a999008cf)
