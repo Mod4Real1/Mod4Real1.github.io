@@ -9,34 +9,31 @@
 
 ----------------------------------------------------------------------------------
 
-+ 𝑰𝒏𝒔𝒕𝒂𝒈𝒓𝒂𝒎: [Click Here](https://www.instagram.com/shaqir_gardypie/). - ![image](https://github.com/Mod4Real/Mod4Real.github.io/assets/134821089/5a55358d-f8e9-4362-833d-3ec9c3d31833)
++ 𝑷𝑺4: Mod4Real_YT - ![image](https://github.com/Mod4Real1/Mod4Real1.github.io/assets/138044753/92cc00ea-76cd-4bdf-82ff-394b11f1be3a)
 
 
-+ 𝑺𝒏𝒂𝒑𝒄𝒉𝒂𝒕: [Click Here](https://www.snapchat.com/add/mod4real?share_id=QTgyMjU5&locale=en_CA). - ![image](https://github.com/Mod4Real/Mod4Real.github.io/assets/134821089/1f2a1491-6a2e-4884-9415-ba2f764b78a4)
++ 𝑿𝑩𝑶𝑿: Mod4Real YT - ![image](https://github.com/Mod4Real1/Mod4Real1.github.io/assets/138044753/92cc00ea-76cd-4bdf-82ff-394b11f1be3a)
 
 
-+ 𝑻𝒘𝒊𝒕𝒄𝒉: [Click Here](https://twitch.tv/mod4real_ttv). - ![image](https://github.com/Mod4Real/Mod4Real.github.io/assets/134821089/68578e1e-ad6c-4ef6-9430-5b1c160179c6)
++ 𝑴𝒊𝒏𝒆𝒄𝒓𝒂𝒇𝒕: Mod4Real YT - ![image](https://github.com/Mod4Real1/Mod4Real1.github.io/assets/138044753/58627e08-8819-4cf7-9a9d-65d0c7b69338)
+  
++ 𝑨𝒑𝒆𝒙 𝒍𝒆𝒈𝒆𝒏𝒅𝒔: Mod4Real_YT - ![image](https://github.com/Mod4Real1/Mod4Real1.github.io/assets/138044753/92cc00ea-76cd-4bdf-82ff-394b11f1be3a)
+  
++ 𝑪𝒍𝒂𝒔𝒉 𝑹𝒐𝒚𝒂𝒍: Mod4Real - (#J9JVGCLUR) [ADD Here](https://link.clashroyale.com/?clashroyale://supercell_id&p=9071075c-dcfb-4143-8d66-8117ca512b7d) - ![image](https://github.com/Mod4Real1/Mod4Real1.github.io/assets/138044753/2b974c6c-0b28-4952-b149-87e5723df4e6)
+
+
++ 𝑩𝒐𝒐𝒎 𝑩𝒆𝒂𝒄𝒉: Mod4Real YT - (#PLOR8L899) [ADD Here](https://link.boombeach.com/?url=boombeach%3A%2F%2FOpenSCID%3Fp%3D9071075c-dcfb-4143-8d66-8117ca512b7d&p=9071075c-dcfb-4143-8d66-8117ca512b7d) - ![image](https://github.com/Mod4Real1/Mod4Real1.github.io/assets/138044753/2b974c6c-0b28-4952-b149-87e5723df4e6)
+
+
++ 𝑹𝒐𝒃𝒍𝒐𝒙: Mod4Real2511 [ADD Here](https://www.roblox.com/users/3390022512/profile) - ![image](https://github.com/Mod4Real1/Mod4Real1.github.io/assets/138044753/250289bd-6a22-4b8c-aa85-ce1f629d9a96)
 
   
-+ 𝑻𝒘𝒊𝒕𝒕𝒆𝒓: [Click Here](https://twitter.com/Mod4RealYT). - ![image](https://github.com/Mod4Real/Mod4Real.github.io/assets/134821089/914388b7-1c02-4e24-8aff-31aae1c23bd8)
-
-  
-+ 𝑭𝒂𝒄𝒆𝒃𝒐𝒐𝒌: [Click Here](https://www.facebook.com/shaqir.gardpie). - ![image](https://github.com/Mod4Real/Mod4Real.github.io/assets/134821089/65ac3e7b-d2ff-44a0-b754-6c17600ca002)
++ 𝑪𝒍𝒂𝒔𝒉 𝒐𝒇 𝒄𝒍𝒂𝒏𝒔: Mod4Real_YT - (#LOP9C8GGY) [ADD Here](https://link.clashofclans.com/?action=OpenSCID&p=9071075c-dcfb-4143-8d66-8117ca512b7d) - ![image](https://github.com/Mod4Real1/Mod4Real1.github.io/assets/138044753/2b974c6c-0b28-4952-b149-87e5723df4e6)
 
 
-+ 𝑻𝒊𝒌𝒕𝒐𝒌: [Click Here](https://vm.tiktok.com/ZMLmP8msM/). - ![image](https://github.com/Mod4Real/Mod4Real.github.io/assets/134821089/051a5495-79a6-4152-9bee-9f3dd6837d7a)
++ 𝑩𝒓𝒂𝒘𝒍 𝑺𝒕𝒂𝒓𝒔: Mod4Real - (#GR2GL8GLO) [ADD Here](https://link.brawlstars.com/?supercell_id&p=9071075c-dcfb-4143-8d66-8117ca512b7d) -  ![image](https://github.com/Mod4Real1/Mod4Real1.github.io/assets/138044753/2b974c6c-0b28-4952-b149-87e5723df4e6)
 
-
-+ 𝑫𝒊𝒔𝒄𝒐𝒓𝒅: [Click Here](https://www.NONE). - ![image](https://github.com/Mod4Real/Mod4Real.github.io/assets/134821089/ffc1c7fe-f2e5-447d-945d-8252f83cc1ba)
-
-  
-+ 𝑻𝒆𝒍𝒆𝒈𝒓𝒂𝒎: [Click Here](https://www.NONE). - ![image](https://github.com/Mod4Real/Mod4Real.github.io/assets/134821089/9c536811-ec6e-4dc9-9601-20957af79ab5)
-
-
-+ 𝑹𝒆𝒅𝒅𝒊𝒕: [Click Here](https://www.reddit.com/user/Mod4Real). - ![image](https://github.com/Mod4Real/Mod4Real.github.io/assets/134821089/c5a4cd41-bfb7-42ee-8494-f321e8fc9c44)
-
-
-+ 𝒀𝒐𝒖𝒕𝒖𝒃𝒆: [Click Here](https://youtube.com/channel/UClDUcDqLyJvfpW68y6GOOYA). - ![image](https://github.com/Mod4Real/Mod4Real.github.io/assets/134821089/ec91a7b4-8fc8-4815-bc52-3e0002762883)
++ 𝑯𝒂𝒚 𝑫𝒂𝒚:  Mod4Real - (#LQYQRQGQU) [ADD Here](https://link.haydaygame.com/?action=OpenSCID&p=9071075c-dcfb-4143-8d66-8117ca512b7d) -  ![image](https://github.com/Mod4Real1/Mod4Real1.github.io/assets/138044753/2b974c6c-0b28-4952-b149-87e5723df4e6)
 
 ----------------------------------------------------------------------------------
 
